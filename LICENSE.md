@@ -1,4 +1,4 @@
-#  
+#  Experience all star tower defense like never before with custom Script for all star tower defense, the #1 Script. Includes no cooldown and aimbot for
 
 
 
